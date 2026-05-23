@@ -1,0 +1,30 @@
+# r/Turkey Gündem — 10.04.2026
+
+1. [Zelenskyy’s call for Türkiye’s accession to EU: “Without Ukraine and Türkiye, Europe can’t match Russia.”](https://www.reddit.com/r/Turkey/comments/1shlxly/zelenskyys_call_for_türkiyes_accession_to_eu/) — u/Punkmo16
+2. [İzmir’de 3 polisin şehit düştüğü silahlı saldırıyı gerçekleştiren 17 yaşındaki terörist: “Terör örgütüne üye değilim aman DEAŞ'ı seviyorum, El Bağdadi'nin ‘Türkiye'ye saldırın’ paylaşımı yüzünden bu eylemi yaptım. Müslümanlara operasyon yapıldığı için devleti temsil eden en yakın karakola saldırdım.](https://www.reddit.com/r/Turkey/comments/1shh22n/izmirde_3_polisin_şehit_düştüğü_silahlı_saldırıyı/) — u/Kirlinternet
+3. [CHP'den AKP'ye geçen Aydın Büyükşehir Belediye Başkanı Özlem Çerçioğlu ve ailesinin şirketi Jantsa, 'VIP' statüsüne alındı](https://www.reddit.com/r/Turkey/comments/1shkalg/chpden_akpye_geçen_aydın_büyükşehir_belediye/) — u/lonerfluff
+4. [CHP’li Mersin Yenişehir Belediyesine Yolsuzluk Operasyonu: 30 Kişi Gözaltında](https://www.reddit.com/r/Turkey/comments/1shfmmv/chpli_mersin_yenişehir_belediyesine_yolsuzluk/) — u/xdeytodie
+5. [İstanbul’da, 2010 yılında gözaltına alındıktan kısa süre sonra yaşamına son veren Onur Yaser Can davasında 4 polis hakkında, "resmi belgeyi yok etme, bozma veya gizleme" suçundan 6'şar yıl hapis cezası verildi. Yaser Can'ın annesi Hatice can, dava sürerken 2014 yılında yaşamına son vermişti.](https://www.reddit.com/r/Turkey/comments/1shvh52/istanbulda_2010_yılında_gözaltına_alındıktan_kısa/) — u/Tolkien_wasnt_racist
+6. [Özgür Özel: ”Eğer Türkiye'de bankamatik personel çalıştırmak yüzünden belediye başkanı tutuklanacaksa AK Parti’de müebbet hapisten kurtulabilecek belediye başkanı bir elin parmaklarını geçmez"](https://www.reddit.com/r/Turkey/comments/1shokx1/özgür_özel_eğer_türkiyede_bankamatik_personel/) — u/Nice-Ragazzo
+7. [Finansal sıkıntılar sebebiyle yasa dışı komisyon işine giren Remzi Sanver, gözaltına alındı. TÜRKİYE DÜNYADA MASONLAR LOCASINA KAYYUM ATAYAN İLK ÜLKE OLDU! Vatandaşlar "Memleketin gizli örgüt lideri bile parasızlıktan komisyon işine giriyor bu ne *****" diyerek olaya tepki gösterdi.](https://www.reddit.com/r/Turkey/comments/1shz0db/finansal_sıkıntılar_sebebiyle_yasa_dışı_komisyon/) — u/Empty-Pace-4228
+8. [Türkiye'nin beşte biri "şüpheli"](https://www.reddit.com/r/Turkey/comments/1shl3nn/türkiyenin_beşte_biri_şüpheli/) — u/Perfect-Platform9136
+9. [10 Nisan 1979 - 3 Nisan 1980 tarihleri arasında PKK, Halkın Kurtuluşu mensubu 11 kişiyi katletti.](https://www.reddit.com/r/Turkey/comments/1shpatp/10_nisan_1979_3_nisan_1980_tarihleri_arasında_pkk/) — u/Mission_Lettuce3050
+10. [Babacan'dan çarpıcı iddia: ülkenin Cumhurbaşkanı en son ne zaman ekonomi ekibini toplayıp bir toplantıya başkanlık yaptı? Sorumluluğu kendi üzerinden atıp, Cevdet Yılmaz'ın, Mehmet Şimşek'in üzerine yıkmak için o fotoğrafı vermiyor.](https://www.reddit.com/r/Turkey/comments/1shevcr/babacandan_çarpıcı_iddia_ülkenin_cumhurbaşkanı_en/) — u/EfendiAdam-iki
+11. [Fuat Uğur, sosyal medya hesabından Tarım Kredi Kooperatifleri Genel Müdürü Hüseyin Aydın hakkında Tarımdan Haber’de yer alan “1,5 milyon liralık maaş” iddiasını gündeme taşıyarak "doğru mu?" sorusunu yöneltti. Paylaşım kısa sürede geniş yankı bulunca araya “hatırlı kişileri” girince paylaşımı sildi](https://www.reddit.com/r/Turkey/comments/1sh383l/fuat_uğur_sosyal_medya_hesabından_tarım_kredi/) — u/Steril-Agent
+12. [HKP Genel Başkanı Nurullah Efe'nin, AKP'giller'in “BTK”sının şikayetiyle kapanan hesaplar üzerine açıklaması](https://www.reddit.com/r/Turkey/comments/1shbk2k/hkp_genel_başkanı_nurullah_efenin_akpgillerin/) — u/tarihsel_maddeci
+13. [70 yaşındaki işçi yüksek gerilim hattında çalışırken hayatını kaybetti!](https://www.reddit.com/r/Turkey/comments/1shw3e9/70_yaşındaki_işçi_yüksek_gerilim_hattında/) — u/eskibigangsta
+14. [Faizler %42'ye yükseldi](https://www.reddit.com/r/Turkey/comments/1shsnrx/faizler_42ye_yükseldi/) — u/dr-jackshephard
+15. [Sizce troy kullanmak 'vatanseverlik' mi?](https://www.reddit.com/r/Turkey/comments/1shugmv/sizce_troy_kullanmak_vatanseverlik_mi/) — u/Murtatan-2
+16. [‘Gibi’si fazla, bu bir darbedir!](https://www.reddit.com/r/Turkey/comments/1shpv7v/gibisi_fazla_bu_bir_darbedir/) — u/duckgoesdockdock
+17. [SSİK kararlarıyla beraber aynı anda inşa edilen gemi sayısı 50 adete yükselecek](https://www.reddit.com/r/Turkey/comments/1shkehz/ssik_kararlarıyla_beraber_aynı_anda_inşa_edilen/) — u/CecilPeynir
+18. [Maaşın yarısından fazlasını kiraya vermek](https://www.reddit.com/r/Turkey/comments/1shuxob/maaşın_yarısından_fazlasını_kiraya_vermek/) — u/BOMBOLOMASYON
+19. [BİRTEK-SEN Genel Başkanı Mehmet Türkmen hakkında iddianame: Savcılık siyasi yasak da istedi](https://www.reddit.com/r/Turkey/comments/1shpsuf/birteksen_genel_başkanı_mehmet_türkmen_hakkında/) — u/lonerfluff
+20. [Saldırı göz göre göre gelmiş: IŞİD için kampanya yürütmüşler, Yalova saldırganlarıyla temas kurmuşlar](https://www.reddit.com/r/Turkey/comments/1shwazr/saldırı_göz_göre_göre_gelmiş_işid_için_kampanya/) — u/eskibigangsta
+21. [Umut-Sen Örgütlenme Koordinatörü Başaran Aksu serbest bırakılsın!](https://www.reddit.com/r/Turkey/comments/1shu6ny/umutsen_örgütlenme_koordinatörü_başaran_aksu/) — u/OddEngineering5683
+22. [What is this person saying?](https://www.reddit.com/r/Turkey/comments/1shwyy6/what_is_this_person_saying/) — u/Personal-Zombie1880
+23. [Sizce Gençliğe Hitabe hâlâ aynen geçerli mi ?](https://www.reddit.com/r/Turkey/comments/1shdhyg/sizce_gençliğe_hitabe_hâlâ_aynen_geçerli_mi/) — u/fecchifreya
+24. [Türkiye haberlerini günlük veya haftalık tarafsız takip etmek için izlediğiniz youtube kanalı var mı?](https://www.reddit.com/r/Turkey/comments/1shgrg7/türkiye_haberlerini_günlük_veya_haftalık_tarafsız/) — u/Khan_of_The_Steppe
+25. [merhabalar turkey halkı, bir gün siyasete atılmak istiyorum ve sizin yardımınıza ihtiyacım var.](https://www.reddit.com/r/Turkey/comments/1sho0wf/merhabalar_turkey_halkı_bir_gün_siyasete_atılmak/) — u/blatii
+
+---
+_Son güncelleme: 10.04.2026_
