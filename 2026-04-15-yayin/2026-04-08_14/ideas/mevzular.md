@@ -1,0 +1,31 @@
+# Mevzular — 8 Nisan-14 Nisan 2026
+
+- İBB yazılım mühendisi Iraz Bayrak davası: İşe girmeden 2 yıl önce tamamlanan projede veri sızdırma suçlaması — 6 aydır cinayet koğuşunda tutuklu, hiç çalışmadığı proje nedeniyle
+  - Google Tag Manager nedir, suçlamanın teknik saçmalığı (her kamu sitesinde kullanılan standart paket)
+  - İşe giriş tarihi ile projenin yayın tarihi arasındaki çelişki — resmi kayıtlarda mevcut
+  - Cinayet koğuşunda tutulma: tutukluluk koşulları ve hukuki gerekçe
+  - İBB çalışanlarına yönelik sistematik baskı mı? — benzer davalar var mı?
+  - Teknik suçlamaları anlamayan mahkeme sorunu: yazılım davalarında jüri/hakim teknik bilgisi
+  - İmamoğlu davası bağlamında İBB personeline operasyon örüntüsü
+- İran Hürmüz Boğazı'nı neden yeniden kapattı — 10 maddelik ateşkes planı, Lübnan koşulu ve İsrail'in Beyrut saldırısı sonrası çöküş
+  - İran'ın 10 maddelik planı ve Trump'ın 'müzakere edilebilir' açıklaması
+  - Lübnan'ın ateşkes kapsamına dahil olup olmadığı tartışması
+  - İsrail'in ateşkes sonrası Beyrut ve Sur'u bombalaması (254+ ölü)
+  - İran parlamentosunun 3 madde ihlal edildi açıklaması
+  - Ham petrolün %16 düşüşü ve boğazın yeniden kapanması
+  - 'Dünya liderlerinin sabahtan akşama imzaladıklarında bile anlaşamadığı' kriz anlatısı
+- Ayhan Bora Kaplan savunucuları: Kaplan'ın avukat ve destekçilerine dair bağlantılar — https://x.com/kafsink94903325/status/2042895712602530166
+  - Gazeteci Nedim Şener (16.05.2024, 148B görüntülenme): "Ayhan Bora Kaplan operasyonu baştan sona mizansen" — @gundemedairhs
+- Ayhan Bora Kaplan dosyası: Yargıtay üyesi Yüksel Kocaman'a 343.650 TL araç ödemesi — Kaplan'ın asistanından, ertesi gün BMW tescil
+- AK Parti'nin kazandığı seçimde CHP'li üye 'boş' oy attığını itiraf etti
+- Bebek Otel / Club House soruşturması: Muzaffer Yıldırım ve Menderes Utku bağlantısı — Burak Doğan (Yeni Şafak)
+- Güney Kore Cumhurbaşkanı Lee Jae Myung: İsrail askerlerinin Filistinliyi çatıdan attığı görüntüleri paylaşıp hesap sorulmasını istedi — Tel Aviv itiraz etti
+- Komedyen Tuba Ulu gözaltı: Kanuni Sultan Süleyman esprisi — "tarihi, milli ve manevi değerlere hakaret" suçlaması (9 Nisan 2026)
+- Şırnak Üniversitesi Rektörü Abdurrahim Alkış skandal sözleri: "TBMM'de işe yaramaz, vasıfsız, sadece el kaldırıp indiren münafık milletvekilleri havlayıp kudursa da... sadakat libasıyla zırhlanan kişilerle yükseltmeye devam edeceğim. Ben eski Cumhuriyet'in hastalıklı, kokuşmuş o çürük düzeninin Rektörü değilim!" — Kaynak: Yeniçağ / Fatih Ergin
+- Sait Ali Bayrak — İsviçre'de 6 ton altın davası: 31 yıllık hukuk mücadelesi, yeni açıklama (Nisan 2026)
+  - Elazığlı iş insanı, annesinin 2005'te hastane yatağında söylediği 6 dev sandık altın iddiasıyla Zürih'e gitmiş, İsviçre çıkışa izin vermemiş
+  - Credit Suisse'in iflası sonrası altınlar UBS'e devredildi — Bayrak artık UBS ile karşı karşıya
+  - 6 ton altının 2026 değeri: 2 milyar dolar üzeri; Osmanlı dönemi altın kemerler, mücevher ve sandıklar
+  - Büyükelçiye verilen 'konuşmama' sözü: Büyükelçi 'sorunu çözeceğiz, konuşma' demiş, 14 yıl sessiz kalmış — şimdi söz bozuldu
+  - 60 kişilik avukat ordusuyla uluslararası tahkim sürecine geçildi; Osmanlı tapuları ve banka belgeleri ibraz edildi
+  - Yayın açısı: Devlet garantisiyle 'sus' baskısı, Credit Suisse skandalı ile bitiş, 'altınlar Elazığ'a gelecek' çıkışı — nostaljik mülkiyet davası mı, siyasi araç mı?
