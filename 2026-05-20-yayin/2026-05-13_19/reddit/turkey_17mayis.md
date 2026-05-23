@@ -1,0 +1,30 @@
+# r/Turkey Gündem — 17.05.2026
+
+1. [Sigara kullanmadığı için 17 kere bıçaklanarak öldürülen 15 yaşındaki Abdulbaki’nin annesi, tehdit mesajları aldığını açıkladı: "Abdulbaki'nin olayında bizim parmağımız var. Şikayetinizi geri almazsanız sokağın ortasında kafanızı keserek silah sıkarak sizide öldürürüz."](https://www.reddit.com/r/Turkey/comments/1tfieln/sigara_kullanmadığı_için_17_kere_bıçaklanarak/) — u/Mission_Lettuce3050
+2. [Eurovision’u kazanan Bulgar şarkıcı Dara, Türkiye'ye teşekkür etti ve eşinin Türk olduğunu açıkladı: "Teşekkürler Türkiye. Yakında tekrar orada olmayı çok istiyorum. Zaten kocam da Türk yani nasıl gelmeyeyim...”](https://www.reddit.com/r/Turkey/comments/1tflle7/eurovisionu_kazanan_bulgar_şarkıcı_dara_türkiyeye/) — u/Kirlinternet
+3. [Kahramanmaraş okul saldırısında ağır yaralanan ve beyin ameliyatı geçiren Mustafa, 33 günlük bekleyişin ardından gözlerini açtı.](https://www.reddit.com/r/Turkey/comments/1tfyrr7/kahramanmaraş_okul_saldırısında_ağır_yaralanan_ve/) — u/Kirlinternet
+4. [Amerikalı Aynasız olarak da bilinen, eski FBI çalışanı Erdal Kaya, 2 polisin Tekirdağ'da şehit olması üzerine açıklamada bulundu: "Yıllardır bu olmasın diye savaşıyorum kanalımda. Zanlılara merhamet etmeyin diyorum ama bana cani olarak bakıyor bazıları!"](https://www.reddit.com/r/Turkey/comments/1tftkmr/amerikalı_aynasız_olarak_da_bilinen_eski_fbi/) — u/Empty-Pace-4228
+5. [Türkiye, Avrupa’da kadın obezitesinde birinci sıraya yükseldi](https://www.reddit.com/r/Turkey/comments/1tfqls0/türkiye_avrupada_kadın_obezitesinde_birinci/) — u/Any-Performance-271
+6. [Tekirdağ Çorlu'da silahlı kavga ihbarına giden 2 polis memuru çıkan çatışmada hayatını kaybetti.](https://www.reddit.com/r/Turkey/comments/1tfoasn/tekirdağ_çorluda_silahlı_kavga_ihbarına_giden_2/) — u/politikablog
+7. [NSFW | Şanlıurfa'da mezarlıkta bir bidonun içerisindeki plastik kutularda 21 cenin bulundu.](https://www.reddit.com/r/Turkey/comments/1tf6php/nsfw_şanlıurfada_mezarlıkta_bir_bidonun/) — u/Kirlinternet
+8. [İstanbul'da yol kenarında gelişigüzel bırakılmış inşaat demirleri, bir otobüsün altını delerek yolculara zarar verdi.](https://www.reddit.com/r/Turkey/comments/1tfi53e/istanbulda_yol_kenarında_gelişigüzel_bırakılmış/) — u/tugrabaskan72
+9. [AKP'nin dindar nesli!!!](https://www.reddit.com/r/Turkey/comments/1tfpnuz/akpnin_dindar_nesli/) — u/Haber_Telvesi
+10. [One of the largest mosques in the world is being built in Strasbourg, funded by Turkey, Qatar, and the Muslim Brotherhood-linked group Millî Görüş.](https://www.reddit.com/r/Turkey/comments/1tfn0xo/one_of_the_largest_mosques_in_the_world_is_being/) — u/TheFactBane
+11. [Türkiye Halk Temsilcileri Meclisi: "Yeter, Kadıköy'de ranta geçit vermeyeceğiz!"](https://www.reddit.com/r/Turkey/comments/1tfmtnt/türkiye_halk_temsilcileri_meclisi_yeter_kadıköyde/) — u/Aggravating-Berry213
+12. [Srebrenitsa Faili Radko Mladiç'in olay anı öncesinden video kaydı. Srebrenitsa sakinlerinin Türk olmaları, katliamı işleyenler için bir motivasyon kaynağıydı. Şehir sakinleri Boşnak olduğu halde, Müslüman oldukları için onları öldürmek "Türklerden intikam almak" olarak görülüyordu.](https://www.reddit.com/r/Turkey/comments/1tfq44o/srebrenitsa_faili_radko_mladiçin_olay_anı/) — u/Empty-Pace-4228
+13. [CHP Aksaray Gençlik, eşi fakirlik belgesi çıkaran AKP milletvekili için para topladı](https://www.reddit.com/r/Turkey/comments/1tfqzw8/chp_aksaray_gençlik_eşi_fakirlik_belgesi_çıkaran/) — u/TurkishTechnocrat
+14. [Ukrayna, 2016 Eurovision'una yarı Tatarca, 1944 Kırım Tehciri'ni anlatan "1944" isimli şarkıyla kazandı. Ülkesinde çok sevilen Kırım Tatarı asıllı şarkıcı Jamala, yarışmada Ukrayna'yı temsil etti. Ukrayna, Türklere karşı işlenen katliamları kendi ulusal felaketi olarak kabul eden tek ülkedir.](https://www.reddit.com/r/Turkey/comments/1tg0gc9/ukrayna_2016_eurovisionuna_yarı_tatarca_1944/) — u/Empty-Pace-4228
+15. [Yaşar İpek, “Hadi Yahudileri avlayalım” şeklindeki sözleri nedeniyle 3 yıl hapis cezasına çarptırıldı](https://www.reddit.com/r/Turkey/comments/1tf8yct/yaşar_ipek_hadi_yahudileri_avlayalım_şeklindeki/) — u/Consistent_Course413
+16. [Welkom! We're hosting r/thenetherlands for a Cultural Exchange](https://www.reddit.com/r/Turkey/comments/1tflmj1/welkom_were_hosting_rthenetherlands_for_a/) — u/DoctorElectrical61
+17. [Turks in New York Participated in the 43 Year of the Turkish American Parade](https://www.reddit.com/r/Turkey/comments/1tfs4xa/turks_in_new_york_participated_in_the_43_year_of/) — u/GB1987IS
+18. [Öğrenci Birliği, 19 Mayıs Salı 14:00'da Güvenpark'ta Toplanıp Anıtkabir'e Yürüyecek](https://www.reddit.com/r/Turkey/comments/1tfk4y0/öğrenci_birliği_19_mayıs_salı_1400da_güvenparkta/) — u/TurkishTechnocrat
+19. [Uluslararası Giresun Aksu Festivali kapsamında bu yıl dokuzuncusu gerçekleşen Uluslararası Giresun Yarı Maratonu koşusundan fotoğraflar](https://www.reddit.com/r/Turkey/comments/1tfm3ff/uluslararası_giresun_aksu_festivali_kapsamında_bu/) — u/Double_Inflation_198
+20. [Neden bu son yıl içerisinde ani bir dilenci artışı var ?](https://www.reddit.com/r/Turkey/comments/1tf75u2/neden_bu_son_yıl_içerisinde_ani_bir_dilenci/) — u/Nerd1Kiz
+21. [Erdogan Wants Turks to Have More Babies. Few Turks are listening.](https://www.reddit.com/r/Turkey/comments/1tftzl6/erdogan_wants_turks_to_have_more_babies_few_turks/) — u/DANIELLE_2027
+22. [John Speed’s map of the Ottoman Empire](https://www.reddit.com/r/Turkey/comments/1tfj9ca/john_speeds_map_of_the_ottoman_empire/) — u/aspirintr
+23. [C++ ile tamamen sıfırdan, hafif bir 2D piksel çizim editörü geliştirdim (Kodlar yorumda)](https://www.reddit.com/r/Turkey/comments/1tg1566/c_ile_tamamen_sıfırdan_hafif_bir_2d_piksel_çizim/) — u/DifficultBarber9439
+24. [Yunancadan Arapçaya ve Arapçadan Türkçeye geçen bir kaç sözcük:](https://www.reddit.com/r/Turkey/comments/1tfzjby/yunancadan_arapçaya_ve_arapçadan_türkçeye_geçen/) — u/KulOrkhun
+25. [Tüm hayallerden vazgeçip memur olmaya karar vermek](https://www.reddit.com/r/Turkey/comments/1tfwok7/tüm_hayallerden_vazgeçip_memur_olmaya_karar_vermek/) — u/ulyssesmoore1
+
+---
+_Son güncelleme: 17.05.2026_
