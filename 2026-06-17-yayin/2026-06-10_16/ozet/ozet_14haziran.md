@@ -5,7 +5,7 @@
 
 ---
 
-## 🔴 1. Türkiye 2-0 Avustralya'ya Yenildi
+## 🔴 1. Avustralya 2-0 Türkiye: İlk Maç Mağlubiyeti
 
 **Kaynak sinyali:** BBC Türkçe · Ekşi (#4 — 5,9K yorum; #11 Vincenzo Montella 1,1K; #17 Aktürkoğlu 711; #23 Barış Alper 446; #8 Arda Güler 422; #43 Merih Demiral 221) · Twitter (Arda Güler · Orkun Kökçü · Murat Yakın · Montella · Çalhanoğlu · Kaan Ayhan · Cengiz Ünder) · Google Trends (dünya kupası maçlar 10.000+)
 
@@ -179,7 +179,7 @@ Yüksek mahkeme kararını fiilen devre dışı bırakan bu adım, yargı kararl
 
 | Kategori | Durum |
 |----------|-------|
-| Spor | 🔴 Hayal kırıklığı — Türkiye 2-0 Avustralya'ya yenildi; Paraguay maçı kritik |
+| Spor | 🔴 Hayal kırıklığı — Avustralya 2-0 Türkiye'ya yenildi; Paraguay maçı kritik |
 | Dış politika | 🔴 Belirsiz — Trump "anlaşma imzalandı" ama Pakistan "19 Haziran"; Hamaney sonrası geçiş süreci |
 | İşçi hakları | 🔴 Kritik — Özşen madencileri üzerine ateş açıldı iddiası; 26. direniş günü |
 | Sivil özgürlükler | 🔴 Aktif baskı — 12. Yargı Paketi eyleminde TİP il başkanı + Halkevleri genel başkanı gözaltı |
