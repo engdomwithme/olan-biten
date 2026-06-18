@@ -69,7 +69,7 @@ Art arda iki günde iki müdahale ve sendika liderliğinin gözaltına alınmas�
 
 ---
 
-## 🔴 5. Türkiye 2-0 Avustralya: Dünya Kupası'nda İlk Maç, İlk Hayal Kırıklığı
+## 🔴 5. Avustralya 2-0 Türkiye: Dünya Kupası'nda İlk Maç, İlk Hayal Kırıklığı
 
 **Haftalık kaynak sinyali:** BBC Türkçe · Ekşi (#4 — 5,9K yorum; Montella 1,1K; Aktürkoğlu 711; Barış Alper 446) · Twitter (Arda Güler · Montella · Kaan Ayhan · Çalhanoğlu)
 
